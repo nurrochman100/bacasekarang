@@ -1,0 +1,2 @@
+# bacasekarang
+Untuk Aplikasi LIne
